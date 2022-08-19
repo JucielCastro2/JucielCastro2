@@ -3,6 +3,7 @@
 - 🌱 calistenia ta no sangue
 - 💞️ DR Eneias vive
 - 📫 a terra segue plana
+-   matador de demonios adeusd as bruxinhas 
 
 <!---
 JucielCastro2/JucielCastro2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
